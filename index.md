@@ -1,1 +1,3 @@
 # Kaladin's Stormblessed Biography
+
+Kaladin is one of the main protagonists in The Stormlight Archive. An accomplished spearman and a natural leader. He is known by many as Kaladin Stormblessed, a nickname he first gained in Amaram's army due to his reputation for being extremely lucky
