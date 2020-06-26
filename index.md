@@ -10,3 +10,5 @@ Kaladin is one of the main protagonists in The Stormlight Archive. An accomplish
 
 Kaladin in Oathbringer:
 > You don't fly, you fall the wrong way.
+
+<img  src="https://vignette.wikia.nocookie.net/stormlightarchive/images/d/d4/Stormblessed.jpg/revision/latest?cb=20140606065944">
